@@ -4,6 +4,7 @@
 - 📫 How to reach me ... most socials are Galvana28, dms are open. Don't be afraid to talk to me.
 - 😄 Pronouns: ... She/her or it/its. If you know me by another then feel free to use those.
 - ⚡ Other: ... I have autism. I'm a fictionkin, puppetkin otherkin, and ockin.
+- Sign my Strawpage and Retropring!! Patreon also has some more about me info.
 - I'll keep updating this, and I'll probably improve the layout in the future.
 
 <!---
