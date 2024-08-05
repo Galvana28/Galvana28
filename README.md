@@ -5,7 +5,8 @@
 - 💜 Pronouns: She/her or it/its. If you know me by another then feel free to use those.
 - ⚡ Other: I have autism. I'm a fictionkin, puppetkin otherkin, and ockin.
 - Sign my Strawpage and Retropring!! Patreon also has some more about me info.
-- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 01/08/24]
+- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 05/08/24]
+this is a big wip please don't get mad at me i promise i'm better than this :(
 
 <!---
 Galvana28/Galvana28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
