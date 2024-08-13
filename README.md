@@ -4,9 +4,9 @@
 - 🐈‍⬛ How to reach me: most socials are Galvana28, dms are open.
 - 💜 Pronouns: She/her or it/its. If you know me by another then feel free to use those.
 - ⚡ Other: I have autism. I'm a fictionkin, puppetkin otherkin, and ockin.
-- Sign my Strawpage and Retropring!! wtf it's shutting down
+- Sign my Strawpage and Retropring!! I'm working on a Carrd.
 - 
-- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 07/08/24]
+- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 13/08/24]
 this is a big wip please don't get mad at me i promise i'm better than this :(
 
 <!---
