@@ -6,7 +6,7 @@
 - ⚡ Other: I have autism. I'm a fictionkin, puppetkin otherkin, and ockin.
 - Sign my Strawpage and Guestbook!! I'm working on a Carrd and remaking my strawpage.
 - 
-- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 03/09/2024]
+- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 04/09/2024]
 this is a big wip please i promise i can make it look better
 
 <!---
