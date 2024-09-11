@@ -8,7 +8,7 @@
 - 
 - I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 10/09/2024]
 this is a big wip please i promise i can make it look better
-wtf is this bro 😭 hurry up this looks ass
+wtf is this vro 😭 hurry up this looks ass
 
 <!---
 Galvana28/Galvana28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
