@@ -1,4 +1,3 @@
-https://64.media.tumblr.com/ce7495a70f971cc53ba429e4e49f0816/f2221d9bc123488c-5c/s540x810/14cbe1095810ec5a1f4739826e63fd8947519d3c.jpg
 - 🎪 Hi! I’m @Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
 - 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Skylanders, and other things I'm not sure.
 - 🌺 I’m currently learning: what is this section what do i even put here
