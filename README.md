@@ -1,6 +1,4 @@
 - 🎪 Hi! I’m @Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
-
-- 
 - 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Pokemon, and other things idk
 - 🌺 I’m currently learning: what is this section what do i even put here
 - 🐈‍⬛ How to reach me: most socials are Galvana28, dms are open everywhere.
