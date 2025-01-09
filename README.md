@@ -8,3 +8,4 @@
 
 - I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 29/11/2024]
 this is a big wip i promise i can make it look better., wtf is this vro 😭 hurry up this looks ass
+- i was considering making a new intro, but it looked different from this and that upset me :/ if anyone wants to help, dm me on discord or smth idk
