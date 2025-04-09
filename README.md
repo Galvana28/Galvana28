@@ -1,4 +1,4 @@
-![zeraora-plush](https://github.com/user-attachments/assets/6bd40d58-cd50-44b8-a39b-919987676e22) me
+nvm finding gifs is hard :/
 
 - 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
 - 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Pokémon, Rhythm Heaven and other things idk
