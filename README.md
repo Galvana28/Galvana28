@@ -1,4 +1,5 @@
-nvm finding gifs is hard :/
+![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
+
 
 - 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
 - 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Pokémon, Rhythm Heaven and other things idk
