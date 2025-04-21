@@ -10,5 +10,7 @@
 - 
 - Sign my Strawpage and Guestbook!! I'm working on a Carrd, it's (not) linked to my Strawpage (im remaking it) :3 Strawpage is finished ithink, I just update it all the time.
 
-- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 10/04/2025]
+- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 21/04/2025]
 this bio SUCKS!!!! I only keep it because I hate change and I'm used to this being here. there's a much better one on my patreon‼️‼️ go check that out
+
+replacing my listography link with pronouns.cc soon
