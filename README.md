@@ -12,5 +12,3 @@
 
 - I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 21/04/2025]
 this bio SUCKS!!!! I only keep it because I hate change and I'm used to this being here. there's a much better one on my patreon‼️‼️ go check that out
-
-replacing my listography link with pronouns.cc soon
