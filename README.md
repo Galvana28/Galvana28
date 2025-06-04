@@ -1,6 +1,7 @@
 ![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
 
 REMAKING so just ignore this lmao
+
 ok this is way more difficult than i thought 💔💔
 
 - 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
