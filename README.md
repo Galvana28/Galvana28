@@ -4,6 +4,8 @@ REMAKING so just ignore this lmao
 
 ok this is way more difficult than i thought 💔💔 itll be here soon trust
 
+See [pronouns.cc](https://pronouns.cc/@Galvana28) for kinlist :33
+
 - 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
 - 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Pokémon, Rhythm Heaven and other things idk
 - 🌺 I’m currently learning: what is this section what do i even put here
