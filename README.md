@@ -15,3 +15,6 @@ ok this is way more difficult than i thought 💔💔 itll be here soon trust
 
 - I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 04/06/2025]
 this bio SUCKS!!!! I only keep it because I hate change and I'm used to this being here. my other socials look better ithink‼️‼️ go check em out
+
+<img src="blob:chrome-untrusted://media-app/18daf636-e882-47f6-a6cd-a1aacb26f09c" alt="zekrom.gif"/>![image](https://github.com/user-attachments/assets/f6fea11d-f4a2-42a5-a0aa-bf9b45dce1e4)
+
