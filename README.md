@@ -15,5 +15,3 @@ ok this is way more difficult than i thought 💔💔 itll be here soon trust
 
 - I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 04/06/2025]
 this bio SUCKS!!!! I only keep it because I hate change and I'm used to this being here. my other socials look better ithink‼️‼️ go check em out
-
-![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
