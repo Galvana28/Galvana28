@@ -2,6 +2,8 @@
 
 REMAKING so just ignore this lmao
 
+[pronouns.cc](https://pronouns.cc/@Galvana28)
+
 ok this is way more difficult than i thought 💔💔 itll be here soon trust
 
 - 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
