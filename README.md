@@ -1,17 +1,26 @@
+↳ [Now playing](https://www.youtube.com/watch?v=l6rS8Dv5g-8) :: Lıllılı.ıllı.ılılıı
+Ruoska - Käärijä & Erika Vikman
+0:38 ——•———————— 3:15
+↺  <<   ll   >>  [⋮≡]
+
+─── ⋆⋅☆⋅⋆ ──
+
 ![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
 
-REMAKING so just ignore this lmao
+Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hypefixated on Eurovision and Super Mario 3D World.
 
-ok this is way more difficult than i thought 💔💔 itll be here soon trust (look at my respositories tell me if you think it's good so far)
+I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p . Sometimes it's difficult to find the right words, so I use emojis instead.
 
-- 🎪 Hi! I’m Galvana28. my names are Yoru, Lumin or Galvana. If you know me by another then feel free to use that.
-- 🍡 I’m interested in: Genshin Impact, My Singing Monsters, Pokémon, Rhythm Heaven and other things idk
-- 🌺 I’m currently learning: what is this section what do i even put here
-- 🐈‍⬛ How to reach me: most socials are Galvana28, dms are open.
-- 💜 Pronouns: She/her or it/its. If you know me by another then feel free to use those.
-- ⚡ Other: I have autism. I'm a fictionkin, otherkin, and ockin. Im terrified of everyone do not speak to me /j I often communicate non-verbally, like using actions and emojis.
-- 
-- Sign my Strawpage and Guestbook!! I'm working on a Carrd, it's (not) linked to my Strawpage (im remaking it) :3 Strawpage is finished ithink, I just update it alot.
+I have autism (who here doesn't? /j) i need to put more here gelp
 
-- I'll keep updating this, and I'll probably improve the layout in the future. [Last updated: 04/06/2025]
-this bio SUCKS!!!! I only keep it because I hate change and I'm used to this being here. my other socials look better ithink‼️‼️ go check em out
+≽^• ˕ • ྀི≼
+
+⚡ **Galvana**, Zeraora, and Reshiram fictionkin (and otherkin)!! See [pronouns.cc](https://pronouns.cc/@Galvana28) for kinlist :33 sorry I'm usually uncomfortable with doubles </3 It also has a lil bit more about me, like more interests, names, and a couple more links.
+
+Sign my [Strawpage](https://electropuppet.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! I'll try to sign yours back :33
+
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
+
+Basic DNI. Don't be hateful, don't be too freaky (joking is fine, i joke freaky a lot). I try my best to read dnis, but feel free to block me.
+
+Have a nice day ᵔᴗᵔ ~♡
