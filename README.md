@@ -18,7 +18,7 @@ I have autism (who here doesn't? /j) i need to put more here gelp
 
 ≽^• ˕ • ྀི≼
 
-⚡ **Galvana**, Zeraora, and Reshiram fictionkin (and otherkin)!! See [pronouns.cc](https://pronouns.cc/@Galvana28) for kinlist :33 sorry I'm usually uncomfortable with doubles </3 It also has a lil bit more about me, like more interests, names, and a couple more links.
+⚡ **Galvana**, Zeraora, and Reshiram fictionkin (and otherkin)!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 sorry I'm usually uncomfortable with doubles </3 It also has a lil bit more about me, like more interests, names, and a couple links.
 
 Sign my [Strawpage](https://electropuppet.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! I'll try to sign yours back :33
 
