@@ -10,7 +10,7 @@ Ruoska - Käärijä & Erika Vikman
 
 ![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
 
-Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hypefixated on Eurovision and Super Mario 3D World.
+Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hypefixated on Hiveswap and Mario.
 
 I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p . Sometimes it's difficult to find the right words, so I use emojis instead.
 
@@ -18,12 +18,12 @@ I have autism (who here doesn't? /j) i need to put more here gelp
 
 ≽^• ˕ • ྀི≼
 
-⚡ **Galvana**, Zeraora, and Reshiram fictionkin (and otherkin)!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 sorry I'm usually uncomfortable with doubles </3 It also has a lil bit more about me, like more interests, names, and a couple links.
+⚡ **Galvana**, Zeraora, and Barzum Soleil fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) (wip) has my kinlist :33 It also has a lil bit more about me, like more interests.
 
 Sign my [Strawpage](https://electropuppet.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! I'll try to sign yours back :33
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
-Basic DNI. Don't be hateful, don't be too freaky (joking is fine, i joke freaky a lot). I try my best to read dnis, but feel free to block me.
+Basic DNI. Don't be hateful, don't be weird gross. I try my best to read dnis.
 
 Have a nice day ᵔᴗᵔ ~♡
