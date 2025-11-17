@@ -1,4 +1,4 @@
-↳ [Now playing](https://www.youtube.com/watch?v=4Fx0owlelKU) :: Lıllılı.ıllı.ılılıı
+↳ Now playing :: Lıllılı.ıllı.ılılıı
 
 Ruoska - Käärijä & Erika Vikman
 
