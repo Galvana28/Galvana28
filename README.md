@@ -1,8 +1,8 @@
 ↳ Now playing :: Lıllılı.ıllı.ılılıı
 
-Ruoska - Käärijä & Erika Vikman
+DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
 
-0:38 ——•———————— 3:15
+0:16 ——•———————— 1:46
 
 ↺  <<   ll   >>  [⋮≡]
 
