@@ -14,13 +14,13 @@ Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have
 
 I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p . Sometimes it's difficult to find the right words, so I use emojis instead.
 
-I have autism (who here doesn't? /j) i need to put more here gelp
+I have autism (who here doesn't? /j) put more here
 
 ≽^• ˕ • ྀི≼
 
 ⚡ **Galvana**, Zeraora, and Barzum Soleil fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
 
-Sign my [Strawpage](https://electropuppet.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! I'll try to sign yours back :33
+Sign my [Strawpage](https://electropuppet.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! :3
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
