@@ -8,7 +8,6 @@ DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
 
 ─── ⋆⋅☆⋅⋆ ──
 
-![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
 ![](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
 
 Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Animal Crossing and Mario.
