@@ -10,7 +10,7 @@ DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
 
 ![reshiram-pokemon-reshiram](https://github.com/user-attachments/assets/7080908a-b436-4afe-9f25-930ebf9c4f4a)
 
-Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Hiveswap and Mario.
+Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Animal Crossing and Mario.
 
 I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead.
 
