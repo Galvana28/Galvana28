@@ -27,3 +27,5 @@ Sign my [Strawpage](https://starhenge.straw.page/) and [Atabook](https://galvana
 Basic DNI. Don't be hateful, don't be weird gross. I try my best to read dnis.
 
 Have a nice day ᵔᴗᵔ ~♡
+
+![](https://64.media.tumblr.com/c484ce11fc0297e1454d404a3f83d831/2a25a5e1abd64440-c8/s250x400/93cc0d32d2b90529921fe5d685197aff9be49887.gifv) ![](https://64.media.tumblr.com/9e467453f4a5822068b342b0c0cc7a25/fa70cebb213036a9-05/s1280x1920/15fd77b4d9f2327212ac0d34d1a69403ec9cf5bb.gifv)
