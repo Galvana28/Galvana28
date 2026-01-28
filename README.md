@@ -12,7 +12,7 @@ DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
 
 Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Animal Crossing and Mario.
 
-I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead.
+I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead. Also, I'm very bad at remembering people. Please dont get mad if I ask who you are again 🙏
 
 I have autism (who here doesn't? /j) put more here loo mint
 
