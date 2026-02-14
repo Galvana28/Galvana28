@@ -18,7 +18,7 @@ I have autism (who here doesn't? /j) put more here loo mint
 
 ≽^• ˕ • ྀི≼
 
-⚡ **Galvana**, Zeraora, and Barzum Soleil fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
+⚡ **Galvana**, Zeraora, and Collei fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
 
 Sign my [Strawpage](https://starhenge.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! :3
 
