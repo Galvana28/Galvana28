@@ -23,7 +23,7 @@ Sign my [Strawpage](https://starhenge.straw.page/) and [Atabook](https://galvana
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
-Basic DNI. Don't be hateful, don't be weird gross. I try my best to read dnis.
+Basic DNI. Don't be hateful, don't be gross. I try my best to read dnis.
 
 Have a nice day ᵔᴗᵔ ~♡
 
