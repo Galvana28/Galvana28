@@ -15,6 +15,7 @@ Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have
 I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead. Also, I'm very bad at remembering people. Please dont get mad if I ask who you are again 🙏
 
 I have autism (who here doesn't? /j) uhh im scared of strangers and i probly won't interact first 💔 i usually stay in the same place every time i come online (i promise im not playtime farming lmao 😭🙏) pleasss don't be scared to cuddle and hide, even if we just sit in silence <3 If you're new or looking for advice or tips, I'd love to help!
+
 ≽^• ˕ • ྀི≼
 
 ⚡ **Galvana**, Zeraora, and Collei fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
