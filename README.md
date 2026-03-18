@@ -18,7 +18,7 @@ I have autism (who here doesn't? /j) uhh im scared of strangers and i probly won
 
 ≽^• ˕ • ྀི≼
 
-⚡ **Galvana**, Zeraora, and Collei fictionkin!! My [pronouns.cc](https://pronouns.cc/@MarkoToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
+⚡ **Galvana**, Zeraora, and Collei fictionkin!! My [pronouns.cc](https://pronouns.cc/@LuminToro) has my kinlist :33 It also has a lil bit more about me, like more interests.
 
 Sign my [Strawpage](https://starhenge.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! :3
 
