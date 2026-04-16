@@ -10,7 +10,7 @@ DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
 
 ![](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
 
-Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Animal Crossing and Poppy Playtime.
+Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Danganronpa and Cuphead.
 
 I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead. Also, I'm very bad at remembering people. Please dont get mad if I ask who you are again 🙏
 
