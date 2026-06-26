@@ -1,31 +1,15 @@
-↳ Now playing :: Lıllılı.ıllı.ılılıı
+spotify
 
-DS Tick-Tock Clock - Mario Kart 8 Deluxe OST
+big picture
 
-0:16 ——•———————— 1:46
+divider
 
-↺  <<   ll   >>  [⋮≡]
+hihi hello what's up ! im galvana, but you can also call me lumin. im okay with any pronouns. im bisexual, genderfluid, and pangender. i have autism, like everyone else who plays pony town /silly
 
-─── ⋆⋅☆⋅⋆ ──
+my interests are my singing monsters, pokemon, danganronpa, and eurovision. of course i have more but i dont wanna list them all here T-T
+
+i am a median system! i do use we/us while talking about us sometimes but i like i/me more. our list of fableings is on our pronouns.cc. we love questions.
 
 ![](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
-
-Hello! My name is Galvana! I LOVE My Singing Monsters and Pokémon!! If you have any cosplays PLEASE show me 🤯 I'm also super hyperfixated on Danganronpa and Cuphead.
-
-I'm quite bad at talking to people 😔😨 I'm ASS at keeping conversations going. I make a lot of typos mostly because I'm really happy I love y'all /p .,, i might be too enthusiastic sometimes idk. It's difficult to find the right words, so alot of the time I use emojis instead. Also, I'm very bad at remembering people. Please dont get mad if I ask who you are again 🙏
-
-I have autism (who here doesn't? /j) uhh im scared of strangers and i probly won't interact first 💔 i usually stay in the same place every time i come online (i promise im not playtime farming lmao 😭🙏) pleasss don't be scared to cuddle and hide, even if we just sit in silence <3 If you're new or looking for advice or tips, I'd love to help!
-
-≽^• ˕ • ྀི≼
-
-⚡ **Galvana**, Zeraora, and Monokuma fictionkin!! My [pronouns.cc](https://pronouns.cc/@SunscraperSpire) has my kinlist :33 It also has a lil bit more about me, like more interests.
-
-Sign my [Strawpage](https://junkosbear.straw.page/) and [Atabook](https://galvana28.atabook.org/)!! :3
-
-⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
-
-Basic DNI. Don't be hateful, don't be gross. I try my best to read dnis.
-
-Have a nice day ᵔᴗᵔ ~♡
 
 ![](https://64.media.tumblr.com/c484ce11fc0297e1454d404a3f83d831/2a25a5e1abd64440-c8/s250x400/93cc0d32d2b90529921fe5d685197aff9be49887.gifv)
