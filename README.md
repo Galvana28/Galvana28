@@ -3,6 +3,7 @@ wip ok? ok
 big picture
 
 divider
+![](https://64.media.tumblr.com/c19dd865b8194e5f50287cc6800a9612/fb5f1ce866f79a54-7e/s2048x3072/3f6a9fc2f958ab19f1b592c27dffdb4f11110eee.pnj)
 
 hihi hello what's up ! im galvana, but you can also call me lumin. im okay with any pronouns. im bisexual, genderfluid, and pangender. i have autism, just like everyone else who plays pony town /silly
 
