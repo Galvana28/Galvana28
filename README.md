@@ -1,4 +1,4 @@
-wip okay? okay
+wip ok? ok
 
 big picture
 
