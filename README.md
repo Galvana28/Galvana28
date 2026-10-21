@@ -6,7 +6,7 @@ divider
 
 hihi hello what's up ! im galvana, but you can also call me lumin. im okay with any pronouns. im bisexual, genderfluid, and pangender. i have autism, just like everyone else who plays pony town /silly
 
-my interests are my singing monsters, pokemon, mario, danganronpa, and eurovision. of course i have more but i dont wanna list them all here T-T
+my interests are my singing monsters, pokemon, mario, and eurovision. if you like these too, let's talk about them! :3
 
 i am the host of a median system! our memory is absolute bootycheeks, we may forget who you are or what we've talked about </3
 
